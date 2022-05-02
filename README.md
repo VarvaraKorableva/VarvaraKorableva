@@ -1,4 +1,10 @@
-### Hi there 👋
+### Hi there I'm Varvara👋
+
+## 🌱  I’m currently study at Yandex Practicum and i'm looking for a great development team, message me if you need a junior developer 🌱 
+
+# How to reach me: v.korableva1990@yandex.ru 
+
+ 
 
 <!--
 **Varvara-from-Moscow/Varvara-from-Moscow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
