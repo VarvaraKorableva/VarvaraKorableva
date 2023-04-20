@@ -1,8 +1,8 @@
 # Hi there I'm Varvara👋
 
-## 🌱  I’m currently study at Yandex Practicum and i'm looking for a great development team, message me if you need a junior developer 🌱 
+## 🌱  I’m looking for a great development team, message me if you need a junior developer 🌱 
 
-### How to reach me: v.korableva1990@yandex.ru 
+### How to reach me: varkor90@gmail.com 
 
  
 
