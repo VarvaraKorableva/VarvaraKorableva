@@ -1,7 +1,5 @@
 # Hi there I'm Varvara👋
 
-## 🌱 I’m looking for a great development team, message me if you need a web-developer 
-
 ### How to reach me: varkor90@gmail.com +972533646394
 
  
